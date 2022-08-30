@@ -1,2 +1,2 @@
 # Intro
-I've recently decided to make the switch from my [M1 MacBook Air](https://www.apple.com/us/shop/buy-mac/macbook-air/with-m1-chip)
+I've recently decided to make the switch from my [M1 MacBook Air](https://www.apple.com/us/shop/buy-mac/macbook-air/with-m1-chip) to an [iPad Pro](https://apple.co/3cw39qE) or [iPad Air](https://apple.co/3RfvMHg). 
